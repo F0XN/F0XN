@@ -17,5 +17,5 @@
 ⤿ My main interests are persona 1 - 5, league of ledgends, yandere simulator, genshin impact, valorant  and SO much more  ! (fandoms interact with caution unless freinds !)<br>
 ⤿ i can sometimes be overwhelming due to my intense mood swings, please be mindful of this and interact with care <br>
 ⤿ i dont have any specific do not interacts besides the basics and some fandoms<br>
-⤿ please be careful with s3xual/su1c1dal jokes around me, i can get uncomfortable really fast if your a new friend that says them often<br>
+⤿ but please be careful with s3xual/su1c1dal jokes around me, i can get uncomfortable really fast if your a new friend that says them often<br>
 ⤿ c+h / int with me is highly encouraged dont be shy ! ! ! 
